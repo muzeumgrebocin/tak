@@ -1,0 +1,11 @@
+---
+id: 2121
+title: 'Plener papierników'
+date: '2021-10-28T20:27:48+02:00'
+author: drukarz
+layout: revision
+guid: 'http://muzeum.grebocin.pl/?p=2121'
+permalink: '/?p=2121'
+---
+
+<div dir="auto">W dniach 20-22 października odbył się na terenie Muzeum plener papierniczy dla studentów Koła Naukowego Pracowni Papieru ASP w Łodzi i Laboratorium Papieru Uniwersytetu Artystycznego w Poznaniu. Warsztaty prowadzone były przez dr hab. Magdalenę Soboń (ASP Łódź) oraz dr Dariusza Subocza (UAP) i dr Marcina Lorenca (UAP).</div><div dir="auto"></div><div dir="auto"></div><div dir="auto"></div><div dir="auto"><div class="gallery galleryid-2121 gallery-columns-5 gallery-size-thumbnail" id="gallery-923"><figure class="gallery-item"><div class="gallery-icon landscape"> [![](https://muzeum.grebocin.pl/wp-content/uploads/2021/10/244772573_2789113848046578_3499538272792680034_n-1-150x150.jpg)](https://muzeum.grebocin.pl/wp-content/uploads/2021/10/244772573_2789113848046578_3499538272792680034_n-1.jpg) </div></figure><figure class="gallery-item"><div class="gallery-icon portrait"> [![](https://muzeum.grebocin.pl/wp-content/uploads/2021/10/248152086_2789113378046625_8241155790780114329_n-150x150.jpg)](https://muzeum.grebocin.pl/wp-content/uploads/2021/10/248152086_2789113378046625_8241155790780114329_n.jpg) </div></figure><figure class="gallery-item"><div class="gallery-icon portrait"> [![](https://muzeum.grebocin.pl/wp-content/uploads/2021/10/248168930_2789114308046532_420233928955758927_n-150x150.jpg)](https://muzeum.grebocin.pl/wp-content/uploads/2021/10/248168930_2789114308046532_420233928955758927_n.jpg) </div></figure><figure class="gallery-item"><div class="gallery-icon landscape"> [![](https://muzeum.grebocin.pl/wp-content/uploads/2021/10/248189663_2789113198046643_783570023741090041_n-150x150.jpg)](https://muzeum.grebocin.pl/wp-content/uploads/2021/10/248189663_2789113198046643_783570023741090041_n.jpg) </div></figure><figure class="gallery-item"><div class="gallery-icon portrait"> [![](https://muzeum.grebocin.pl/wp-content/uploads/2021/10/248553433_2789113488046614_3470137492569385180_n-150x150.jpg)](https://muzeum.grebocin.pl/wp-content/uploads/2021/10/248553433_2789113488046614_3470137492569385180_n.jpg) </div></figure> </div></div><div dir="auto"></div>

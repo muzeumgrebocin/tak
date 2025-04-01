@@ -1,0 +1,15 @@
+---
+id: 2228
+title: 'Plakaty dla Ukrainy'
+date: '2022-05-07T15:26:13+02:00'
+author: drukarz
+layout: post
+guid: 'https://muzeum.grebocin.pl/?p=2228'
+permalink: /plakaty-dla-ukrainy/
+image: /wp-content/uploads/2022/05/IMG_5819a.jpg
+categories:
+    - Aktualności
+    - Galeria
+---
+
+<div class="" dir="auto"><div class="ecm0bbzt hv4rvrfc ihqw7lf3 dati1w0a" data-ad-comet-preview="message" data-ad-preview="message" id="jsc_c_6vv"><div class="j83agx80 cbu4d94t ew0dbk1b irj2b8pg"><div class="qzhwtbm6 knvmm38d"><div class="kvgmc6g5 cxmmr5t8 oygrvhab hcukyx3x c1et5uql ii04i59q"><div dir="auto">Kolejna odsłona naszej Galerii na Słupie w kolorach i tematyce Ukrainy. Plakaty pochodzą z projektu Plakaty dla Ukrainy, dzięki uprzejmości Stowarzyszenia Twórców Grafiki Użytkowej (STGU), które udostępniło pliki do druku za darmo. Dziękujemy artystom, autorom plakatów i z dumą je prezentujemy.</div><div dir="auto"></div></div><div class="cxmmr5t8 oygrvhab hcukyx3x c1et5uql o9v6fnle ii04i59q"><div dir="auto">**Autorzy:**</div><div dir="auto">Agata Lędźwa</div><div dir="auto">Agata Piątkowska</div><div dir="auto">Anna Nowokuńska</div><div dir="auto">Bożena Cichecka</div><div dir="auto">Łukasz Kowalski</div><div dir="auto">Przemek Kotyński</div><div dir="auto">Michał Dyakowski</div><div dir="auto">Natalia Noszczyńska</div><div dir="auto">Nikodem Pręgowski</div><div dir="auto">Paweł Szlotawa</div></div><div dir="auto"><div class="gallery galleryid-2228 gallery-columns-6 gallery-size-thumbnail" id="gallery-27"><figure class="gallery-item"><div class="gallery-icon portrait"> [![](https://muzeum.grebocin.pl/wp-content/uploads/2022/05/IMG_5834-150x150.jpeg)](https://muzeum.grebocin.pl/wp-content/uploads/2022/05/IMG_5834-scaled.jpeg) </div></figure><figure class="gallery-item"><div class="gallery-icon portrait"> [![](https://muzeum.grebocin.pl/wp-content/uploads/2022/05/IMG_5853-150x150.jpeg)](https://muzeum.grebocin.pl/wp-content/uploads/2022/05/IMG_5853-scaled.jpeg) </div></figure><figure class="gallery-item"><div class="gallery-icon portrait"> [![](https://muzeum.grebocin.pl/wp-content/uploads/2022/05/IMG_5837-150x150.jpeg)](https://muzeum.grebocin.pl/wp-content/uploads/2022/05/IMG_5837-scaled.jpeg) </div></figure><figure class="gallery-item"><div class="gallery-icon portrait"> [![](https://muzeum.grebocin.pl/wp-content/uploads/2022/05/IMG_5854-150x150.jpeg)](https://muzeum.grebocin.pl/wp-content/uploads/2022/05/IMG_5854-scaled.jpeg) </div></figure><figure class="gallery-item"><div class="gallery-icon portrait"> [![](https://muzeum.grebocin.pl/wp-content/uploads/2022/05/IMG_5855-150x150.jpeg)](https://muzeum.grebocin.pl/wp-content/uploads/2022/05/IMG_5855-scaled.jpeg) </div></figure><figure class="gallery-item"><div class="gallery-icon portrait"> [![](https://muzeum.grebocin.pl/wp-content/uploads/2022/05/IMG_5856-150x150.jpeg)](https://muzeum.grebocin.pl/wp-content/uploads/2022/05/IMG_5856.jpeg) </div></figure> </div></div></div></div></div></div>

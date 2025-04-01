@@ -1,0 +1,28 @@
+---
+id: 2257
+title: 'Monika Shaded &#8211; Brzeg'
+date: '2022-06-20T12:14:13+02:00'
+author: drukarz
+layout: post
+guid: 'https://muzeum.grebocin.pl/?p=2257'
+permalink: /monika-shaded-brzeg/
+image: /wp-content/uploads/2022/06/Monika_Shaded_Brzeg_.jpg
+categories:
+    - Aktualności
+    - Galeria
+---
+
+**Monika Shaded** urodziła się w 1983r. w Ciechanowie. Ukończyła studia na ASP w Poznaniu, na Wydziale Edukacji Artystycznej w zakresie krytyki i promocji sztuki oraz pedagogiki sztuki w 2008r. W tym samym roku obroniła dyplom z malarstwa i została asystentką w VIII Pracowni Malarstwa prof. Józefa Walczaka. Była stypendystką Ministra Kultury i Dziedzictwa Narodowego oraz Marszałka Województwa Wielkopolskiego. Bierze udział w licznych wystawach. Prowadzi warsztaty artystyczne dla dzieci, młodzieży i dorosłych, jest aktywna w zakresie promocji i krytyki sztuki.
+
+Wystawa pod honorowym patronatem Marszałka Województwa Kujawsko-Pomorskiego Piotra Całbeckiego
+
+<div class="gallery galleryid-2257 gallery-columns-5 gallery-size-thumbnail" id="gallery-30"><figure class="gallery-item"><div class="gallery-icon landscape"> [![](https://muzeum.grebocin.pl/wp-content/uploads/2022/06/289486933_521064253140147_240331275496100917_n-150x150.jpg)](https://muzeum.grebocin.pl/wp-content/uploads/2022/06/289486933_521064253140147_240331275496100917_n.jpg) </div></figure><figure class="gallery-item"><div class="gallery-icon landscape"> [![](https://muzeum.grebocin.pl/wp-content/uploads/2022/06/1-150x150.jpeg)](https://muzeum.grebocin.pl/wp-content/uploads/2022/06/1.jpeg) </div></figure><figure class="gallery-item"><div class="gallery-icon portrait"> [![](https://muzeum.grebocin.pl/wp-content/uploads/2022/06/289335885_521064179806821_201618876010423443_n-150x150.jpg)](https://muzeum.grebocin.pl/wp-content/uploads/2022/06/289335885_521064179806821_201618876010423443_n.jpg) </div></figure><figure class="gallery-item"><div class="gallery-icon landscape"> [![](https://muzeum.grebocin.pl/wp-content/uploads/2022/06/3-150x150.jpg)](https://muzeum.grebocin.pl/wp-content/uploads/2022/06/3-scaled.jpg) </div></figure><figure class="gallery-item"><div class="gallery-icon portrait"> [![](https://muzeum.grebocin.pl/wp-content/uploads/2022/06/2-150x150.jpeg)](https://muzeum.grebocin.pl/wp-content/uploads/2022/06/2.jpeg) </div></figure> </div>We wstępie do katalogu Martyna Wróblewska Zano pisze:
+
+*Monika Shaded zaskakuje w swoim najnowszym cyklu zatytułowanym ,,Brzeg”.*   
+*„Brzeg” nie jest szkicownikiem w klasycznym rozumieniu tego słowa, jednak jest mu bliski. Zniknął gdzieś kolor, światło i przestrzeń tak istotne w poprzednich dziełach Moniki Shaded. Nie ma mnogości faktur. Artystka używa jedynie czarnej i białej pasteli, węgla – dzięki którym uzyskuje, jak się okazuje – bogate spektrum. Ta oszczędność formy pozwala na bycie szczerą do bólu. To zapis tych najmocniejszych odczuć, to zdecydowane słowa. To pozbawiona cukierkowych filtrów reakcja. Obraz powstawać może przez wiele dni, tygodni, miesięcy. Uczucia artystki zmieniają się a razem z nimi może ulec zmianie cała koncepcja. Skończone dzieło jest zaszyfrowane – widz, interpretując je, stara się odnaleźć ten prawdziwy, jedyny sens spod warstw malarskiej materii i gestu. Czy artystka coś ukrywa, co chce tak naprawdę powiedzieć? Dlaczego czasami zdrapuje farbę, tak jakby nagle postanowiła odkryć przed odbiorcą swoją pierwszą myśl? A może to tylko zabieg estetyczny?*
+
+*W cyklu ,,Brzeg” mamy nową jakość – prawdziwość i śmiałość szkicu; jak i przepracowaną emocję – przemyślany, zamknięty w ramie, zdecydowany gest. Temat łodzi jako figury symbolicznej pojawia się w twórczości Moniki Shaded już w 2008 roku. Łódź umożliwia duszy drogę przez zaświaty. Samotna podróż, odbywająca się w całkowitej ciszy. Lina horyzontu jest nieostra. Człowiek zna swój cel, ale go nie widzi, nie ma brzegu, nie ma przystani. Rzeka wije się między górami, które pochłaniają wszystko wokół. Zamykają drogę ucieczki. Przestrzeń choć ogromna, paradoksalnie sprawia wrażenie klaustrofobicznej. Człowiek znajduje się pomiędzy dwoma przeciwstawnymi rzeczywistościami – niebem i ziemią. Ma swoje podwójne obywatelstwo w kieszeni, ale co z tego? Utknął z nim gdzieś pomiędzy. Do tej pory ta droga w twórczości artystki była przepełniona światłem i kolorem. Jednak z najnowszych prac, paradoksalnie, emanuje niepokój a zarazem pogodzenie się z losem.*  
+*Wydaje się, że człowiek nie może zrobić nic, by podróż przyspieszyć, nie ma wpływu na jej kierunek, musi się poddać nurtowi rzeki i ufać, że będzie dobrze. Z drugiej strony możliwe, że wcale nie chce dotrzeć to brzegu, że boi się własnej skończoności. Świat wokół wydaje się przytłaczający, niezrozumiały, szalony. Z kolei brzeg jest tajemnicą, niewiadomą. Łódź to synonim bezpieczeństwa. To w niej człowiek płynie przez życie, którego kurczowo się trzyma, choć nierzadko przepełnione jest bólem, smutkiem, chorobą, strachem czy cierpieniem.*  
+*Cykl „Brzeg” powstawał w czasie toczącej się po dziś dzień wojny na Ukrainie. Oczywiście w życiu artystki mogły się wydarzyć rzeczy, o których nie wiemy, a które mogły mieć istotny wpływ na nią w trakcie pracy. Jednak te ogólnie znane okoliczności* *tamtych i niestety obecnych dni, sprawiają, że na cykl ,,Brzeg” można popatrzeć z zupełnie innej perspektywy. Monika Shaded podkreśla, że jej obrazy mają opowiadać o tym, kim jest w danym czasie, kiedy maluje. Kim więc była wtedy i co przeżywała w trakcie tworzenia? Cykl ,,Brzeg” to opowieść bliska wielu z nas. Te karty swojego pamiętnika Monika Shaded daje przeczytać jak nigdy wcześniej.*
+
+wystawa czynna do 30.06.2022

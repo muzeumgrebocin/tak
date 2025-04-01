@@ -1,0 +1,19 @@
+---
+id: 1515
+title: 'Mobilna drukarnia w Bydgoszczy'
+date: '2020-09-20T12:21:07+02:00'
+author: drukarz
+layout: revision
+guid: 'http://muzeum.grebocin.pl/1505-revision-v1/'
+permalink: '/?p=1515'
+---
+
+Zapraszamy do Bydgoszczy gdzie wraz z Wojewódzką i Miejską Biblioteką Publiczną i Marszałkiem Województwa Kujawsko-Pomorskiego prezentujemy wystawę mobilnej ekspozycji muzealnej „Podziemna Drukarnia” z okresu opozycji antykomunistycznej, wykorzystywanej przez toruńskie struktury „Solidarności” w czasach PRL.
+
+Wystawa to mobilne kontenery w których można zobaczyć przeniesioną 1:1 podziemną drukarnię z autentycznym wyposażeniem. Podziemna drukarnia toruńskiego środowiska Solidarności, której nigdy nie udało się namierzyć i zlikwidować peerelowskim służbom bezpieczeństwa. W latach osiemdziesiątych wychodziły z niej ulotki i niezależne gazety dodające ducha mieszkańcom regionu. Ekspozycja powstała w ramach obchodów 30. rocznicy wyborów czerwcowych 1989 roku. Więcej [ototorun.pl](https://ototorun.pl/artykul/prawdziwa-podziemna-drukarnia/670860)
+
+Zapraszamy również na wystawę komiksu solidarnościowego „500 pierwszych dni” autorstwa Jaceka Fedorowicza – gwiazdy ekranu, radia i satyry. Jego zaangażowane rysunki w latach 80. podtrzymywały na duchu i dodawały odwagi podczas stanu wojennego. Audycje radiowe z jego udziałem biły rekordy frekwencji, a komedie, w których grywał bawią do dziś. Wspomnijmy choćby: „Nie ma róży bez ognia”, „Motodrama”, „Kochajmy syrenki”. Bez niego nie byłoby teatru Bim-Bom, audycji radiowej „60 minut na godzinę”, postaci „Kolegi Kierownika”, czy parodii „Dziennika Telewizyjnego”.  
+**Uroczyste otwarcie – 15.09.2020 o godzinie 12.00**  
+Wystawę będzie można oglądać do końca września, codziennie w godzinach: 10.00-16.00.
+
+<div class="gallery galleryid-1515 gallery-columns-6 gallery-size-thumbnail" id="gallery-457"><figure class="gallery-item"><div class="gallery-icon portrait"> [![](https://muzeum.grebocin.pl/wp-content/uploads/2020/09/119648040_3281606761874878_669151943043656820_n-150x150.jpg)](https://muzeum.grebocin.pl/mobilna-drukarnia-bydgoszczy/119648040_3281606761874878_669151943043656820_n/) </div></figure><figure class="gallery-item"><div class="gallery-icon portrait"> [![](https://muzeum.grebocin.pl/wp-content/uploads/2020/09/119671832_3281606918541529_4608249635443053886_n-150x150.jpg)](https://muzeum.grebocin.pl/mobilna-drukarnia-bydgoszczy/119671832_3281606918541529_4608249635443053886_n/) </div></figure><figure class="gallery-item"><div class="gallery-icon portrait"> [![](https://muzeum.grebocin.pl/wp-content/uploads/2020/09/119654714_3281606578541563_5105488425700770466_n-150x150.jpg)](https://muzeum.grebocin.pl/mobilna-drukarnia-bydgoszczy/119654714_3281606578541563_5105488425700770466_n/) </div></figure><figure class="gallery-item"><div class="gallery-icon portrait"> [![](https://muzeum.grebocin.pl/wp-content/uploads/2020/09/119656157_3279923212043233_7227452627382149862_n-150x150.jpg)](https://muzeum.grebocin.pl/mobilna-drukarnia-bydgoszczy/119656157_3279923212043233_7227452627382149862_n/) </div></figure><figure class="gallery-item"><div class="gallery-icon portrait"> [![](https://muzeum.grebocin.pl/wp-content/uploads/2020/09/119721286_3281607118541509_6260397681523932663_n-150x150.jpg)](https://muzeum.grebocin.pl/mobilna-drukarnia-bydgoszczy/119721286_3281607118541509_6260397681523932663_n/) </div></figure><figure class="gallery-item"><div class="gallery-icon portrait"> [![](https://muzeum.grebocin.pl/wp-content/uploads/2020/09/119643753_3281606581874896_2179798874567841803_n-150x150.jpg)](https://muzeum.grebocin.pl/mobilna-drukarnia-bydgoszczy/119643753_3281606581874896_2179798874567841803_n/) </div></figure> </div>

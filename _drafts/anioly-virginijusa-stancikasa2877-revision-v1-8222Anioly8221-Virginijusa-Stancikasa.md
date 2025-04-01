@@ -1,0 +1,34 @@
+---
+id: 2886
+title: '&#8222;Anioły&#8221; Virginijusa Stančikasa'
+date: '2024-03-08T07:38:35+01:00'
+author: drukarz
+layout: revision
+guid: 'https://muzeum.grebocin.pl/?p=2886'
+permalink: '/?p=2886'
+---
+
+Zapraszamy serdecznie na kolejne wydarzenie w Mini Galerii Muzeum Piśmiennictwa i Drukarstwa w Grębocinie, wystawę rzeźb i malarstwa artysty z Litwy Virginijusa Stančikasa zatytułowaną „Anioły”.
+
+![](http://muzeum.grebocin.pl/wp-content/uploads/2024/03/poster-Rimas-1024x726.jpg)
+
+Virginijus Stančikas urodził się w 1961 r. w małym litewskim miasteczku, które zachowało dużą część swojej historii – Vievy. Rysunkiem i sztuką zainteresował się już w szkole, uczęszczał na różne zajęcia pozaszkolne. Po ukończeniu szkoły wstąpił na Wydział Architektury Wileńskiego Technikum Budowlanego. Studia nie trwały długo – został zmuszony do wstąpienia w szeregi armii radzieckiej. W 1982 r. V. Stančikas kontynuował naukę w Technikum Sztuk Stosowanych w Kownie. W 1986 roku ukończył studia ze specjalizacją snycerską. Rok później dołączył, a w 1992 r. już na niepodległej Litwie, ukończył Akademię Sztuk Pięknych w Wilnie, uzyskał specjalizację pedagoga sztuki. Od 1997 i do chwili obecnej Virginijus pracuje jako konserwator w Muzeum Historycznym w Trokach, uzyskał najwyższą kategorię kwalifikacji artystycznej renowacji mebli.
+
+![](http://muzeum.grebocin.pl/wp-content/uploads/2024/03/20240304_1044551-768x1024.jpg)
+
+Malarstwo zawsze było hobby Virginijusa w wolnym czasie. Nawiasem mówiąc, podobnie jak sporty na orientację. To swoista kryjówka przed życiem, ucieczka od opresyjnej rzeczywistości czy stresów życia, okazja do ekspresyjnego „filozofowania”, szukania wytchnienia po ciężkim dniu pracy. Jedna, druga, trzecia praca, odwaga, a może nawet frustracja, żeby wyprowadzić obrazy z warsztatu, zaprezentować je oczom i zmysłom estetycznym publiczności, przerodziły się w ostrożną próbę udziału w wystawach. Wystawy i wernisaże zapewniły autorowi nowe spotkania i znajomości, a charakterystyczny styl malarski, odtwarzający stylistykę dawnych mistrzów, nawiązujący do dawnych mistrzów malarstwa sakralnego, szybko stał się rozpoznawalnym stylem malarskim V. Stančika.
+
+Virginius często działał na deskach, wykorzystując starożytne receptury, technologie i techniki. Warto wspomnieć, że kiedy dotrzecie do Bazyliki w Trokach, w ołtarzu głównym zobaczycie słynny cudowny obraz Matki Bożej, który w XVIII wieku nakrył słynny wileński złotnik Jonas Frydrich Šemniks. Srebrna ozdoba powstała na początku XVII w. zdobi koronami głowy Marii i Dzieciątka. Sam obraz namalowany jest na obitej płótnem desce lipowej, a w legendzie o jego powstaniu słychać echo nieznanego dziś wydarzenia historycznego, które mogło stać się także inspiracją dla twórczości V.Stančika, skupienia jego myśli technologicznej, rozwiązań i wyborów artystycznych. Autor stworzył portrety i wizerunki świętych. Prawdopodobnie najsłynniejszych kochanków i małżonków litewsko-polskiej pary państwowej, Zygmunta Augusta i Barbary ​​Radziwiłłówny, być może najbardziej wyjątkowe dzieło, wymagające dużej pomysłowości i kunsztu twórczego, prezentowane jest zwiedzającym w oparciu o oryginalne obrazy z XVII wieku na Wystawie Sztuki Sakralnej w Kaplicy Klasztornej Dominikanów w Muzeum Historycznym w Trokach. Obraz najświętszego patrona Litwy, Kazimierza, wykonany jest ze srebrzenia. Kilka dzieł autora wiąże się z jednym z najsłynniejszych rodów państwa polsko-litewskiego – Tyszkiewiczami. W Czerwonym Dworze znajduje się kopia słynnego obrazu „Stefan Batory pod Pskowem” (1872) Jana Matejki (1838-1893), słynnego mistrza malarstwa historycznego i scen batalistycznych, namalowanego przez V. Stančika. Obraz ten zakupił i przechowywał w majątku w Czerwonym Dworze hrabia Benedykt Henryk Tyszkiewicz (1852–1935), obecnie oryginał obrazu znajduje się w muzeum Zamku Królewskiego w Warszawie. W 2016 roku V. Stančikas odrestaurował neogotycki ołtarz i płaskorzeźbę „Ostatnia wieczerza” przy ulicy Vokė w Trokach w kościele Najświętszej Marii Panny, w kaplicy-mauzoleum książąt Tyszkiewiczów. Częsta obecność w sakralnym środowisku była inspirująca, a dłonie dotykające artefaktów minionych pokoleń zdawały się zadawać sobie pytanie: tworzyć, tworzyć, tworzyć…
+
+![](http://muzeum.grebocin.pl/wp-content/uploads/2024/03/IMG_20210412_174846-768x1024.jpg)
+
+W twórczości V. Stančika skrzydła są dość powszechnym atrybutem – ozdobione są nimi wytrwałe gotyckie kobiety, myśliwi o dowcipnych, bystrych oczach lub inne personifikacje snów, których skrzydła są symbolem szerokiego widzenia, ochrony sił wyższych, możliwość wolności. To świadectwo, że można latać i przeżywać przygodę, aby osiągnąć cel, o który trzeba walczyć. W Piśmie Świętym znajdują się wyraźne odniesienia do aniołów. Niektóre z nich są bezpośrednie i jasne, jeśli chodzi o moment, w którym Bóg mówi Mojżeszowi, że wyśle ​​przed nim anioła, który będzie go chronił i pomagał wejść na miejsce, które przygotował sam Bóg. Również osoby świeckie nieustannie „wołają” o opiekę anioła – w roku 2022, w listopadzie, u podnóża Zamku na Wyspie w Trokach można było obejrzeć wystawę „Anioły” autorstwa utalentowanych ukraińskich dzieci, uczestników międzynarodowego forum „Złota Sztaluga”, które włączyły się do walki w projekcie „Sztafeta Pokoju”. To projekt artystyczny, który stał się symbolem ukraińskiej walki, dobra, zwycięstwa i światła, które dzięki Trokom zamieniło się w podróż przez Litwę, a w 2023 roku, na Boże Narodzenie Pierwsza Dama Litwy Diana Nausėdienė wraz z rodzinami wielodzietnymi stworzyła dekoracje na potrzeby  
+świątecznej promocji „Skrzydła Anioła”.
+
+Anioły jako bohaterowie dzieł, pojawiły się także w twórczości V. Stančikasa, podczas przygotowań cyklu wystaw z okazji 700. urodzin Wilna w 2023 roku. Prace malowane są na bardzo specyficznym podłożu – są to boki konfesjonałów kościelnych. Podczas renowacji konfesjonałów zdecydowano się na wymianę ich zniszczonych boków na nowe deski. Tak zrodził się wspaniały pomysł, aby tchnąć nowe życie w oryginalne, autentyczne części: po połączeniu boków namalowano na nich aniołki. Tym samym część wyposażenia sakralnego, będąca świadkiem niezliczonych spowiedzi, wnikliwości, ludzkich modlitw i skruchy za wyrządzone zło, stała się podstawą nowego projektu twórczego. Na wystawie widzimy inspiracje głębokiej wiary i absolutnie nowatorskie wdrożenie, związek przeszłości z teraźniejszością, zaangażowanie w przyszłość, walkę ciemności z rozprzestrzeniającym się promieniem, cieniem ze światłem. Dobro jest zachowane w naszych sercach.
+
+W tym trudnym czasie wszyscy bardziej niż kiedykolwiek szukamy skrzydeł dobroci: niech chronią Życie, Prawdę, Pokój, Pokój Ducha, Współczucie, Poświęcenie, Miłość, Zdrowie, Radość, Wdzięczność i Nadzieję.
+
+tekst o artyście: Alvyga Zmejevskienė, dyrektor Muzeum Historycznego w Trokach i Rimas Supranavičius, kierownik działu księgowości zbiorów, digitalizacji i restauracji.
+
+marzec 2024

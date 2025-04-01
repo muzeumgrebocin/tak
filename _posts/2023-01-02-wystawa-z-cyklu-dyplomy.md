@@ -1,0 +1,21 @@
+---
+id: 2499
+title: 'Wystawa z cyklu Dyplomy'
+date: '2023-01-02T18:43:46+01:00'
+author: drukarz
+layout: post
+guid: 'https://muzeum.grebocin.pl/?p=2499'
+permalink: /wystawa-z-cyklu-dyplomy/
+image: /wp-content/uploads/2023/01/323767646_891294198555130_409322044221717117_n.jpg
+categories:
+    - Aktualności
+    - Galeria
+---
+
+<div class="" dir="auto"><div class="x1iorvi4 x1pi30zi x1l90r2v x1swvt13" data-ad-comet-preview="message" data-ad-preview="message" id="jsc_c_zv"><div class="x78zum5 xdt5ytf xz62fqu x16ldp7u"><div class="xu06os2 x1ok221b"><div class="x11i5rnm xat24cr x1mh8g0r x1vvkbs xdj266r x126k92a"><div dir="auto">W Nowy 2023 wkraczamy z przytupem za sprawą nowej wystawy w naszej Mini Galerii. Z cyklu „Dyplomy” zapraszamy do oglądania wystawy plakatów **Klaudii Grabas** i **Elizy Kwiatkowskiej**, tegorocznych absolwentek Wydziału Sztuk Pięknych na Uniwersytecie Mikołaja Kopernika w Toruniu. Obie ukończyły studia magisterskie na kierunku grafika w Katedrze Projektowania Graficznego. Promotorem obu dyplomów był **dr hab. Nikodem Pręgowski, prof. UMK**</div></div><div class="x11i5rnm xat24cr x1mh8g0r x1vvkbs xtlvy1s x126k92a"><div dir="auto"> </div></div><div class="x11i5rnm xat24cr x1mh8g0r x1vvkbs xtlvy1s x126k92a"><div dir="auto">Ulubioną formą grafiki użytkowej Klaudii jest plakat oraz ilustracja. Motywy, które często stosuje, są powiązane ze zwierzętami oraz roślinnością. Na wystawie można obejrzeć fragment zestawu dyplomowego składający się z 6 plakatów zatytułowanych Polskie Parki Narodowe, które przedstawiają zwierzęta, należące do symboli poszczególnych parków. Każdy z plakatów otrzymał indywidualną paletę kolorów. Istotnym elementem wszystkich prac jest kompozycja, która została zaprojektowana w oparciu o formę danego zwierzęcia. Plakaty są wieloelementowe, charakteryzuje je duża różnorodność oraz mnogość faktur. Na każdym z nich znajduje się nazwa parku, informacje, które dotyczą województwa w jakim się znajduje, roku powstania oraz powierzchni. Chęć zaprojektowania plakatów, które poza wartościami informacyjnymi posiadają też wartości ilustracyjne, dzięki którym rezygnacja z typografii pozwala funkcjonować im jako niezależnej ilustracji była dodatkową motywacją podczas tworzenia całego cyklu.</div></div><div dir="auto"> </div><div dir="auto"> </div><div class="x11i5rnm xat24cr x1mh8g0r x1vvkbs xtlvy1s x126k92a"><div dir="auto">Fragment Dyplomu Elizy Kwiatkowskiej Polskie miasta to zestaw plakatów o cechach charakterystycznych dla poszczególnych zakątków Polski. Od Krakowa, Gniezna, Poznania po Łódź, Opole, Gdańsk czy Toruń. Do najczęściej spotykanych i rozpoznawalnych cech należą elementy architektoniczne i to one grają główną rolę przy promocji danego miasta. Autorka za pomocą symboli, mitologicznych i legendarnych postaci, czy współczesnych wydarzeń, pokazuje miasta z innej perspektywy. Inspiracją do stworzenia serii był szczególny i niepowtarzalny klimat polskich miast. Oprócz wyjątkowej architektury, posiadają one inne walory miejskie i wiele atrakcji turystycznych, które przyciągają turystów. Plakaty cechuje kontrast i żywa kolorystyka. Głównym elementem w każdej pracy jest postać, lekko przerysowana, jednak posiadająca ludzkie cechy a z uwagi na ilustracyjny charakter w plakatach ograniczone zostały podpisy jedynie do nazwy miasta.</div></div><div dir="auto"> </div><div class="x11i5rnm xat24cr x1mh8g0r x1vvkbs xtlvy1s x126k92a"><div dir="auto">**Wystawa czynna do 31.01.2023**</div></div></div></div></div></div><figure class="wp-block-gallery columns-3 is-cropped wp-block-gallery-2 is-layout-flex wp-block-gallery-is-layout-flex">- <figure>![](https://muzeum.grebocin.pl/wp-content/uploads/2023/01/323622313_5790364277721138_7730543468578270280_n-1024x768.jpg)</figure>
+- <figure>![](https://muzeum.grebocin.pl/wp-content/uploads/2023/01/323634002_4191184384440914_5628341652067985130_n-1024x768.jpg)</figure>
+- <figure>![](https://muzeum.grebocin.pl/wp-content/uploads/2023/01/323767646_891294198555130_409322044221717117_n-1-1024x768.jpg)</figure>
+- <figure>![](https://muzeum.grebocin.pl/wp-content/uploads/2023/01/323874838_387088303630870_3570509759055269945_n-768x1024.jpg)</figure>
+- <figure>![](https://muzeum.grebocin.pl/wp-content/uploads/2023/01/324018603_850282882891144_847501752243405122_n-768x1024.jpg)</figure>
+
+</figure>
